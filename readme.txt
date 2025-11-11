@@ -1,3 +1,3 @@
 boa noite caralho
-boa noite caralho 2
-gosto de ervas medicinais
+boa noite 2
+gosto de pamonha
